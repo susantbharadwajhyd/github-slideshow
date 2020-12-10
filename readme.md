@@ -1,3 +1,3 @@
 Hello
-How are you doing
+Im good what about you
 what is your plan
